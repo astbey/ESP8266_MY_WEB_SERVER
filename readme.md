@@ -1,1 +1,1 @@
-sittin senedir bu projeyı geliştiriyorum
+sittin senedir bu projeyı geliştiriyorumm
